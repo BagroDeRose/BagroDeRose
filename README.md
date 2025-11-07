@@ -44,7 +44,7 @@ I'm open to job opportunities in teams that value ideas more than titles.
 ## 🏋️‍♂️ Sports & hobbies
 - **Sport** – a part of my past; I still hit the gym occasionally to stay in shape.  
 - I love **quiet**, **green tea**, and simple cookies.  
-- **Music** – I listen to Bones, $uicideboy$, Joji, Nothing, Nowhere, Lil Peep, 21 Savage, and Chase Atlantic. Their tracks combine calm, a hint of melancholy, and strength.  
+- **Music** – I listen to Bones, $$uicideboy$, Joji, Nothing, Nowhere, Lil Peep, 21 Savage, and Chase Atlantic. Their tracks combine calm, a hint of melancholy, and strength.  
 - **Travel** – I enjoy discovering new places; I’ve traveled abroad more often than within Russia.  
 - **Instruments** – I play the **accordion** and **guitar** (not professionally, but they’re part of my soul).
 
