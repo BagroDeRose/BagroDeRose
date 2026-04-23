@@ -69,5 +69,3 @@ The experience taught me patience, adaptability, and quick problem-solving.
 </p>
 
 ---
-
-*No masks, no pretension. Just **Bagro** – a person seeking his own path between code, music, and a cup of green tea.*
